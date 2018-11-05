@@ -1,1 +1,4 @@
 # election_forecast
+
+Here is my forecast:
+I believe that Democrats will retake the House by about 7 seats, though they will win the popular vote by about 6 points. In the Senate, things get quite a bit more complicated. McCaskill, Donnelly, and Nelson will all hang on, and Jacky Rosen will emerge victorious in Nevada. However, Heitkamp will fall, and Beto's upset attempt will ultimately come up short (and it won't even be that close). However, Sinema will pick up a seat in Arizona in an extremely close race. This would mean that Tennessee would be the tipping point, and Martha McSally's immigration rhetoric and Phil Bredesden's perceived ties to the "establishment" will allow McSally to emerge with a win. Thus, Republicans will keep control of the Senate though it will be split 50-50, as VP Mike Pence holds the tie-breaking vote.
